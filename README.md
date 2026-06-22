@@ -22,7 +22,7 @@ NiKo，原名 Nikola Kovač，来自波斯尼亚和黑塞哥维那
 
 2015年 加入 **mousesports** 后，他开始进入观众的视野
 
-那时的 CS 世界仍属于 fnatic、Virtus.pro、Na'Vi 和 Astralis 等豪门
+那时的 CS 世界仍属于 FNC、VP、NaVi 和 Astralis 等豪门
 
 而 NiKo 只是一个来自巴尔干地区的年轻人
 
@@ -122,7 +122,7 @@ G2 打进决赛
 
 也是 NiKo 再次触碰梦想的机会
 
-决赛对手是拥有 s1mple 的 Na'Vi
+决赛对手是拥有 s1mple 的 NaVi
 
 比赛来到 Nuke
 
@@ -144,7 +144,7 @@ NiKo 手持沙漠之鹰
 
 人们只知道
 
-最终捧起奖杯的是 Na'Vi
+最终捧起奖杯的是 NaVi
 
 **而 NiKo 再一次站在亚军的位置**
 
