@@ -20,9 +20,9 @@
 
 NiKo，原名 Nikola Kovač，来自波斯尼亚和黑塞哥维那
 
-2015年 加入 **mousesports** 后，他开始进入观众的视野
+2015年 加入 **MOUZ** 后，他开始进入观众的视野
 
-那时的 CS 世界仍属于 FNC、VP、NaVi 和 Astralis 等豪门
+那时的 CS 世界仍属于 FNC、VP、NaVi 和 A队 等豪门
 
 而 NiKo 只是一个来自巴尔干地区的年轻人
 
